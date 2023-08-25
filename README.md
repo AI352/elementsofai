@@ -1,0 +1,2 @@
+# elementsofai
+mergers and acquisitions
